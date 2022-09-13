@@ -1,0 +1,1 @@
+# 8sinif-deney-x-fen-bilimleri-soru-bankasi-32
